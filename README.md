@@ -1,2 +1,1 @@
-<img width="734" height="244" alt="Image" src="https://github.com/user-attachments/assets/d41745e2-5e94-4f8d-8f14-ff7208c69c96" />
-<br>n fode
+<img width="816" height="459" alt="Image" src="https://github.com/user-attachments/assets/edeee3e3-59bb-490f-b056-3faac7b933a9" />
